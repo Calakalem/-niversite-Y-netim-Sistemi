@@ -1,1 +1,0 @@
-# -niversite-Y-netim-Sistemi
